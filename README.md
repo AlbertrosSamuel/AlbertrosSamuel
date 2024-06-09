@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Bringing humanity into a the a peacful future where all people are happy.
 - 🌱 I’m currently learning ...the US environmental movement and WebPage Design  
 - 💞️ I’m looking to collaborate on ...A film  
-- 📫 How to reach me ...stick out your arm
+- 📫 How to reach me ...stick out your arm out
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...The Eurasian Magpie has the largest brain to weight ratio after human beings and is reportidly very intelligent.
 
